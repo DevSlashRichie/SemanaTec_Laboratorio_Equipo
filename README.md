@@ -1,0 +1,1 @@
+# SemanaTec_Laboratorio_Equipo
